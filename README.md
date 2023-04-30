@@ -1,4 +1,4 @@
-# IGEC SITE COMPANY WITH FULL ACCESS [SITE]("https://igeccorp.com/")
+# IGEC SITE COMPANY WITH FULL ACCESS 
 
 ![Screenshot 2023-04-30 181429](https://user-images.githubusercontent.com/90656786/235361209-ce357e7e-a7c0-4631-875e-1d815ba2304a.png)
 
