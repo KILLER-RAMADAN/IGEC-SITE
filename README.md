@@ -1,6 +1,7 @@
-# IGEC SITE COMPANY WITH FULL ACCESS 
+# IGEC SITE COMPANY WITH FULL ACCESS [Word Press]
 
-![Screenshot 2023-04-30 181429](https://user-images.githubusercontent.com/90656786/235361209-ce357e7e-a7c0-4631-875e-1d815ba2304a.png)
+![Screenshot 2023-04-30 181429](https://user-images.githubusercontent.com/90656786/235361433-70e5a06e-2a3e-4cff-8974-e9d1fa7aa1a0.png)
+
 
 # SECTORS
 
