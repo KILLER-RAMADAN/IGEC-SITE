@@ -1,4 +1,4 @@
-# IGEC SITE WITH FULL ACCESS [HERE](https://igeccorp.com/)
+# You Can Take A Look [HERE](https://igeccorp.com/)
 
 ![Screenshot 2023-04-30 181429](https://user-images.githubusercontent.com/90656786/235361433-70e5a06e-2a3e-4cff-8974-e9d1fa7aa1a0.png)
 
